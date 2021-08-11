@@ -1,6 +1,6 @@
 
 
-## About Anna Alexandra
+## About Akira Humada
 <br>
 Hi, I'm a great blockchain and cryptocurrency professional developer. <br>
 I have 4+ years of experience in Blockchain/Cryptocurrency development. <br>
